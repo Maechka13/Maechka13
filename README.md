@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Maechka13
+- 👋 Hi, I’m Maiia
 - 👀 I’m interested in Data Analysis and Project Management
 - 🌱 I’m currently working towards new data analyst job
 - 😄 Pronouns: she/her
